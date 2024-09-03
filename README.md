@@ -1,4 +1,4 @@
-- percy ✩ he/him ✩ 20 yrs old -
+- percy ✩ he/him ✩ 21 yrs old -
 - uni student in CS -
 
 <!---
