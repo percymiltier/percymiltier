@@ -1,5 +1,5 @@
-- percy ✩ he/him ✩ 21 yrs old
-- uni student in CS
+- percy ✩ he/him ✩ 22 yrs old
+
 
 <!---
 percymiltier/percymiltier is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
